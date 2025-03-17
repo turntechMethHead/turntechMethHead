@@ -15,5 +15,10 @@
    <p>G's  to  the  bizzack,  now  ladies  here  we  gizzo. . ."</p>
 </div>
 
+<a href="https://discord.com/users/1105223115451146432">discord</a> |
+<a href="https://hellasite.straw.page">strawpg</a> |
+  <a href="https://pronouns.cc/@souljaboy">prns cc</a> |
+  <a href="https://turntablism.atabook.org">ata</a> <br/>
+<sub>[S] Dave: STRIFE.</sub>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=bo3j5lynqxs8pr2u2s848d650&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=ff0000&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
