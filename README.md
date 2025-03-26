@@ -15,7 +15,6 @@
    <p>G's  to  the  bizzack,  now  ladies  here  we  gizzo. . ."</p>
 </div>
 
-<a href="https://discord.com/users/1105223115451146432">discord</a> |
 <a href="https://hellasite.straw.page">strawpg</a> |
   <a href="https://pronouns.cc/@souljaboy">prns cc</a> |
   <a href="https://turntablism.atabook.org">ata</a> <br/>
